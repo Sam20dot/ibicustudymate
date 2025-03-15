@@ -56,8 +56,8 @@ This project is hosted on **Poe.com**, and its features are subject to the platf
 
 ## 📞 Contact
 
-📧 Email: your.email@example.com  
-🌐 Platform: [Poe.com](https://poe.com)  
+📧 Email:nizaweaimesam250@gmail.com 
+🌐 Platform: [Poe.com](https://poe.com/IbicuStudyMate)  
 🐦 Twitter: [@YourTwitterHandle](https://twitter.com/YourTwitterHandle)  
 
 ---
